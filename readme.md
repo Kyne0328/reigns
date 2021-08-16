@@ -1,1 +1,3 @@
-This is the readme.md
+Download Reigns Collection App Update Below
+
+
